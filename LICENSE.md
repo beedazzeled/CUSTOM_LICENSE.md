@@ -1,4 +1,4 @@
-Ever Jackson Tarot & Spellwork License (Custom)
+brandie raquel freitasEver Jbrandie raquel wooten jackson Tarot & Spellwork License (Custom)
 
 Copyright (c) 2026 Ever Jackson
 
