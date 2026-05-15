@@ -1,4 +1,4 @@
-brandie raquel freitasEver Jbrandie raquel wooten jackson Tarot & Spellwork License (Custom)
+brandie raquel freitasEver Jbrandie raquel wooten jackson Timages and last will on http://www.freewill.comarot & Spellwork License (Custom)
 
 Copyright (c) 2026 Ever Jackson
 
